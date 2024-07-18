@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ManeeshaReddy2311
+- 👋 Hi, I’m Maneesha R. Komirelly
 - 👀 I’m a Full Stack Developer with 5 years of experience
 - 🌱 I’m currently seeking a Full Time Opportunity.
 - 📫 How to reach me : maneeshareddykomirelly@gmail.com
